@@ -1,3 +1,4 @@
+<title>jjjdjsadja</title>
 <h1>jjjdjsadja</h1>
 
 This site provide informations about one of the best simulation games witch is Plague inc and about it's mod.
